@@ -1,0 +1,2 @@
+# Elone
+Damai itu Indah
